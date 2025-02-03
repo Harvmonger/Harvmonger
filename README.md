@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Harvmonger
+- 👋 Hi, I’m Lester aka @Harvmonger
 - 👀 I’m interested in Futurism, comic books, food, and working out.
 - 🌱 I’m currently learning about all things futuristic. This includes AI, quantum computing, and technology that will improve our lives.
 - 💞️ I’m looking to collaborate on any and all innovative projects regarding technology.
